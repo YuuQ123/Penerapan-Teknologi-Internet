@@ -1,1 +1,2 @@
-# Penerapan-Teknologi-Internet
+# apa aja dluu ye kaaan
+memeeqqqq
